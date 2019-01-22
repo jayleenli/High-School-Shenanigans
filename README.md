@@ -12,5 +12,3 @@ Everything was made on the day of the event, and everything made is original.
   
 Team PJMA (pajama): Pooja Chivukula, Jayleen Li, Madeline Huang, Andrea Arce  
 Art by Madeline, Music by Andrea  
-  
-Enjoy :)  
